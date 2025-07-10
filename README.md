@@ -15,4 +15,4 @@
 安全和隐私保护也是平台的重点，采用HTTPS加密技术，防止信息泄露，保障用户数据安全。无弹窗广告设计，为用户提供纯净舒适的观看环境。  
 总结而言，国产乱人伦精品一区二区凭借高清画质、资源丰富、便捷观看和严格安全保障，成为成人影片爱好者信赖的选择。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/jour54432/ribenvv7)</span>
